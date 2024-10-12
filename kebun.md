@@ -1,0 +1,1 @@
+Setelah melewati sungai, Kancil mencium aroma timun segar dari kebun milik petani. Ia sangat ingin mencicipi, tapi tahu bahwa petani sering memasang jebakan. Dengan hati-hati, Kancil mengamati setiap langkahnya, memastikan tidak ada jebakan yang terkena. Setelah berhasil memakan beberapa timun tanpa tertangkap, Kancil berlari keluar kebun dengan perut kenyang.
