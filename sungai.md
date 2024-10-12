@@ -1,0 +1,1 @@
+Setelah lolos dari Harimau, Kancil tiba di tepi sungai dan ingin menyeberang. Tapi sungai itu penuh dengan buaya! Kancil yang licik berkata pada Buaya, "Hei Buaya, aku cuma ingin menghitung berapa banyak kalian di sungai ini. Bisa berbaris rapi biar aku hitung?" Buaya-buaya pun menurut. Kancil melompat di atas punggung mereka satu per satu hingga sampai ke seberang sungai.
