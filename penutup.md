@@ -1,0 +1,1 @@
+Petualangan hari itu membuat Kancil semakin yakin bahwa kecerdikan dan keberanian sangat penting. Namun, ia juga belajar bahwa persahabatan seperti dengan Kura-kura membuat perjalanan semakin bermakna. Pesan moral dari kisah Kancil: "Jangan cuma andalkan kepintaran, tapi juga hargai teman-teman yang tulus. Bersama, segala rintangan bisa dihadapi.
