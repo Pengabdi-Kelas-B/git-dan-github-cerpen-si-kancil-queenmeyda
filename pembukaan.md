@@ -1,0 +1,1 @@
+Di suatu pagi yang cerah, Si Kancil, hewan kecil yang cerdik dan lincah, siap memulai petualangan barunya. Dengan bulu cokelat yang mengilap, Kancil terkenal di seluruh hutan karena kepintarannya. Hari itu, ia memutuskan untuk menjelajahi hutan dan bertemu teman-teman barunya.
