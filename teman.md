@@ -1,0 +1,1 @@
+Dalam perjalanannya, Kancil bertemu dengan Kura-kura. Meski lambat, Kura-kura adalah teman yang bijaksana dan baik hati. Mereka berdua berbincang dan saling bertukar cerita, lalu memutuskan untuk berteman baik. Kura-kura mungkin lambat, tapi Kancil tahu bahwa kesabaran dan kebijaksanaan Kura-kura sangat berharga.
